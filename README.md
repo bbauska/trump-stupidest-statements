@@ -24,7 +24,8 @@ of course.</p>
     Making mice transgenic is a revolutionary process by which scientists add human cells to mice 
 	to enable them to more accurately study the effect of disease on human tissues.</li>
   <li><a href="https://www.indy100.com/politics/trump/donald-trump-spain-bric-nation-2670974952">
-    Spain is reportedly a ‘BRICS’ country</a>In his first major blunder since becoming president for 
+    Spain is reportedly a ‘BRICS’ country</a>.<br>
+	In his first major blunder since becoming president for 
 	the second time, Trump claimed that Spain is a ‘BRICS’ country during a press conference, where 
 	he was asked about defence spending in the country.<br>
     He claimed: “They’re a BRICS nation, Spain. Do you know what a BRICS nation is? You’ll 
@@ -32,7 +33,8 @@ of course.</p>
     BRICS refers to a bloc of 10 developing economies, including Brazil, Russia, India, China 
 	and South Africa, of which no EU member nation is a part.</li>
   <li><a href="https://www.indy100.com/politics/trump/donald-trump-washington-dc-plane-crash-dei">
-    Blaming Washington plane crash on DEI</a>Following the tragic plane crash between a helicopter 
+    Blaming Washington plane crash on DEI</a>.<br>
+	Following the tragic plane crash between a helicopter 
 	and an American Airlines flight in Washington DC in January 2025, Trump took the opportunity to 
 	blame diversity and inclusion.<br>
     "I changed the Obama standards from very mediocre at best to extraordinary, you remember 
@@ -62,7 +64,7 @@ of course.</p>
     New York governor Kathy Hochul, simply responded: “We are a nation of laws, not ruled 
 	by a king. We’ll see you in court.”</li>
   <li><a href="https://www.indy100.com/politics/trump/donald-trump-denmark-greenland">
-    Trump says Denmark “doesn’t have right” to Greenland</a>, despite it belonging to them
+    Trump says Denmark “doesn’t have right” to Greenland</a>, despite it belonging to them.<br>
 	The US is involved in an ongoing dispute over Greenland as Trump wants the land to 
 	be America’s, even claiming that Denmark doesn’t have the “right” to the country - 
 	except he missed one major fact.<br>
@@ -71,7 +73,7 @@ of course.</p>
 	distance between Greenland and the US is 3,134 miles).<br>
     Greenland’s outgoing Prime Minister, Mute Egede, fired back at Trump’s comments in a 
     Facebook post where he wrote: “The U.S. president has once again aired the thought of 
-    annexing us."
+    annexing us."<br>
     “Enough is enough,” he added and shared his plans to organise a meeting of the chairmen 
 	of all Greenland’s political parties “as soon as possible” to discuss Trump’s latest 
 	remarks. Yikes.</li>
@@ -82,7 +84,7 @@ of course.</p>
 	up quite significantly.<br>
     "I don't know if you saw. Little things such as the cost of eggs – little to you, but 
 	big to the people out there. Down almost 30 per cent, in the last, eh, few days”, he 
-	said during a press conference on 12 March.<br>
+	said during a press conference on 12 March, 2025.<br>
     Even Serena Williams' former coach Rennae Stubbs chimed in on the action, writing: 
 	"This dude lies as much as he draws breath."</li>
   <li>Jabs at Zelensky that he’s <a href="https://www.indy100.com/news/elon-musk-donald-trump-zelensky-suit">
@@ -149,162 +151,122 @@ of course.</p>
     This is a topic Trump has been vocal about during his presidential election campaign 
 	as he pledged the number of wind farms would be slashed if reelected.</li>
   <li><a href="https://www.indy100.com/politics/trump/donald-trump-american-citizenship-bizarre">
-Trump shares bizarre take on how citizenship works</a>
-Donald Trump is infamous for saying completely outrageous remarks, making dubious 
-decisions and just generally things that make you go: "Eh?"
-
-And he's done it again, this time about American citizenship.
-
-Trump recently spoke with NBC News about his aim to end birthright citizenship and 
-said American citizens with family in the country illegally may be deported.
-
-"Did you know, if somebody sets a foot - just a foot, one foot, you don't need two - 
-on our land, congratulations, you are now a citizen of the United States of America”, 
-he said.
-
-"Yes, we're going to end that because it's ridiculous. We're the only country that has 
-it, you know. You know we're the only country that has it."
-
-Trump here is seemingly describing an outrageous scenario where a woman would give birth 
-to an infant that could have one foot in America and another in another country like 
-Mexico and Canada.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-liz-cheney-tucker">
-Trump fantasises about Liz Cheney being shot</a>
-At a time where gender-based violence is rife, it’s actually rather shocking that 
-Donald Trump once publicly fantasised about Liz Cheney being shot.
-
-Trump branded Ms Cheney – the daughter of Dick Cheney, the former Republican vice 
-president, who has come out in support of Trump’s rival Kamala Harris – a “very dumb 
-individual” and a “radical war hawk”.
-
-“Let’s put her with a rifle standing there with nine barrels shooting at her, let’s 
-see how she feels about it. You know, when the guns are trained on her face,” he 
-said. Yikes.</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-us-garbage-can">
-Trump brands the US ‘a garbage can’</a>
-Trump’s signature slogan ‘Make America Great Again’ didn’t come from nowhere - and it 
-makes sense given that he made his feelings about the state of the US under Joe Biden 
-clear.
-
-Speaking in Tempe while on his campaign trail, Trump said: “We’re like a garbage can, 
-you know, it’s the first time I’ve ever said that, and every time I come up and talk 
-about what they’ve done to our country, I get angry. First time I’ve ever said garbage 
-can, but you know what, it’s a very accurate description.”
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-harris-pennsylvania-rally">
-Trump brands Harris a ’s***’ vice president</a>
-Before being re-elected as president, it was clear Trump was willing to do anything to 
-secure his second term - even if that meant making his feelings about the current 
-administration at the time clear and unfiltered.
-
-In the same rally speech which saw him ramble about the penis size of late US golfer 
-Arnold Palmer, the former Apprentice star took aim at then-vice president Kamala Harris 
-using rather colourful language.
-
-He told his supporters: “We have to tell Kamala Harris that you’ve had enough, that you 
-just can’t take it anymore. We can’t stand you, you’re a s*** vice president. The worst.”
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-michigan-rally-speech">
-Trump takes aim at ‘fat husbands’ as he tries to win over voters</a>
-By October 2024, Trump had done a number of rallies on his campaign trail, and frankly, 
-must have been clutching at straws to win over voters.
-
-Donald Trump used his speech at his Michigan rally on 18 October to go after an imaginary 
-woman named ‘Jill’ and tell her “fat husband” to get “off the couch” and “vote for Trump” 
-– yes, really.
-
-“Early voting is underway so get everyone you know and get out and vote. Go tomorrow, it’s 
-just starting, go and vote, make sure you vote, and bring all our friends that want to vote 
-for us, tell them: ‘Jill, get your fat husband off the couch. Get that fat pig off the couch”, 
-he told the crowd.
-
-“’Time to go and vote for Trump, he’s going to save our country’ … Get him up, Jill. Slap him 
-around, get him up!”
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-father-of-ivf">
-Trump claims he’s the ‘father’ of IVF</a>
-Donald Trump labelled himself the “father of IVF” in an awkward moment in front of an 
-all-female audience of voters, as he attempted to win them over in the 2024 election.
-
-It comes as many fear rights to IVF may become threatened under a Republican, Trump-led 
-government.
-
-It happened during a Fox News town hall in the key election battleground of Georgia, when 
-the issue of reproductive rights and IVF (In vitro fertilization) came up, and he scrambled 
-for an answer.
-
-Vice-President Kamala Harris, who was also running for president, called the comment “quite 
-bizarre”.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-pennsylvania-rally-supporter-killed-joke">
-Trump makes joke about supporter being killed at Pennsylvania rally</a>
-Donald Trump made a joke at a private fundraiser referencing the widow of Corey Comperatore, 
-the supporter who was killed during the assassination attempt on Trump in Butler, Pennsylvania 
-in July, according to a report.
-
-The Guardian reported it obtained a 12 minute recording from a dinner held in Aspen, Colorado 
-on August 10 in which he was heard swearing, claiming a group of "murderers" came to America 
-after being released from prison in another country and making a joke at the expense of 
-Comperatore's family.
-
-Trump reportedly said: "So they're going to get millions of dollars but the woman, the 
-wife, this beautiful woman, I handed her the cheque - we handed her the cheque - and 
-she said, 'this is so nice, and I appreciate it, but I'd much rather have my husband'.
-
-"Now, I know some of the women in this room wouldn't say the same.
-
-"I know at least four couples. There are four couples, Governor [Abbott], that I know 
-and you're not one of them. At least four couples here would have been thrilled, actually."
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-the-purge-crime">
-Donald Trump says a day like The Purge would ‘curb crime’</a>
-During the election campaign, Trump said giving police "one really violent day" to 
-tackle crime such as theft from stores would help to stop people stealing in what's 
-been described as "one of the most dangerous speeches of the 21st Century".
-
-Trump spoke at a rally in Erie, Pennsylvania on September 29, claiming crime rates are 
-skyrocketing (something the far right consistently falsely claims to cause fear) and it's 
-primarily the fault of migrants.
-
-He went on to say this could be dealt with in a way similar to the dystopian action horror 
-film series The Purge where all crime, even murder, is legal for a 12-hour period. Not a 
-wise choice, if you ask us.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/trump-change-name-ai-artificial-intelligence">
-Trump wants to rename AI - and his suggestion makes no sense</a>
-Donald Trump doesn't like artificial intelligence... well, the name at least, as he bizarrely 
-requested for AI to be called something else.
-
-(Because renaming the "Gulf of Mexico” to “Gulf of America” for federal agencies wasn't enough.)
-
-The US president was in attendance at an artificial intelligence summit on 24 July when he 
-decided to make this linguistic query during a speech.
-
-"Around the globe everyone is talking about artificial intelligence. I find that too artificial, 
-I can’t stand it. I don’t even like the name,” Trump said, tossing his hands up in the air.
-
-"It’s not artificial. It’s genius. It’s pure genius," he said of the developing technology.
-
-We're not sure that one will catch on.
-</li>
-<li>Donald Trump expects another 'thank you' for doing the right thing
-
-Following a bust-up over Ukraine, it seems Trump expects another ‘thank you’ for helping 
-a warzone – this time concerning the ongoing devastation in Gaza.
-
-Speaking in Scotland on Sunday, with European Commission president Ursula von der Leyen 
-sitting next to him, the US president told reporters: “We gave $60 million, two weeks ago 
-- and nobody even acknowledged it – for food.
-
-“It’s terrible. You know, you really at least want to have somebody to say ‘thank you’ … 
-Nobody acknowledged it, nobody talks about it, and it makes you feel a little bad when 
-you do that.
-
-“Nobody gave but us, and nobody said, ‘gee, thank you very much’, and it would be nice to 
-have at least a thank you.”
-
-How very charitable.
+    Trump shares bizarre take on how citizenship works</a><br>
+	Donald Trump is infamous for saying completely outrageous remarks, making dubious 
+	decisions and just generally things that make you go: "Eh?"<br>
+	And he's done it again, this time about American citizenship.<br>
+	Trump recently spoke with NBC News about his aim to end birthright citizenship and 
+	said American citizens with family in the country illegally may be deported.<br>
+	"Did you know, if somebody sets a foot - just a foot, one foot, you don't need two - 
+	on our land, congratulations, you are now a citizen of the United States of America”, 
+	he said.<br>
+    "Yes, we're going to end that because it's ridiculous. We're the only country that has 
+	it, you know. You know we're the only country that has it."<br>
+    Trump here is seemingly describing an outrageous scenario where a woman would give birth 
+	to an infant that could have one foot in America and another in another country like 
+	Mexico and Canada.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-liz-cheney-tucker">
+    Trump fantasises about Liz Cheney being shot</a><br>
+    At a time where gender-based violence is rife, it’s actually rather shocking that 
+	Donald Trump once publicly fantasised about Liz Cheney being shot.<br>
+    Trump branded Ms Cheney – the daughter of Dick Cheney, the former Republican vice 
+	president, who has come out in support of Trump’s rival Kamala Harris – a “very dumb 
+	individual” and a “radical war hawk”.<br>
+    “Let’s put her with a rifle standing there with nine barrels shooting at her, let’s 
+	see how she feels about it. You know, when the guns are trained on her face,” he 
+	said. Yikes.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-us-garbage-can">
+    Trump brands the US ‘a garbage can’</a><br>
+    Trump’s signature slogan ‘Make America Great Again’ didn’t come from nowhere - and it 
+	makes sense given that he made his feelings about the state of the US under Joe Biden 
+	clear.<br>
+    Speaking in Tempe while on his campaign trail, Trump said: “We’re like a garbage can, 
+	you know, it’s the first time I’ve ever said that, and every time I come up and talk 
+	about what they’ve done to our country, I get angry. First time I’ve ever said garbage 
+	can, but you know what, it’s a very accurate description.”</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-harris-pennsylvania-rally">
+    Trump brands Harris a ’shit’ vice president</a><br>
+    Before being re-elected as president, it was clear Trump was willing to do anything to 
+	secure his second term - even if that meant making his feelings about the current 
+	administration at the time clear and unfiltered.<br>
+	In the same rally speech which saw him ramble about the penis size of late US golfer 
+	Arnold Palmer, the former Apprentice star took aim at then-vice president Kamala Harris 
+	using rather colourful language.<br>
+    He told his supporters: “We have to tell Kamala Harris that you’ve had enough, that you 
+	just can’t take it anymore. We can’t stand you, you’re a shit vice president. The worst.”</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-michigan-rally-speech">
+    Trump takes aim at ‘fat husbands’ as he tries to win over voters</a><br>
+    By October 2024, Trump had done a number of rallies on his campaign trail, and frankly, 
+	must have been clutching at straws to win over voters.<br>
+	Donald Trump used his speech at his Michigan rally on 18 October to go after an imaginary 
+	woman named ‘Jill’ and tell her “fat husband” to get “off the couch” and “vote for Trump” 
+	– yes, really.<br>
+	“Early voting is underway so get everyone you know and get out and vote. Go tomorrow, it’s 
+	just starting, go and vote, make sure you vote, and bring all our friends that want to vote 
+	for us, tell them: ‘Jill, get your fat husband off the couch. Get that fat pig off the couch”, 
+	he told the crowd.<br>
+	“’Time to go and vote for Trump, he’s going to save our country’ … Get him up, Jill. Slap him 
+	around, get him up!”</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-father-of-ivf">
+    Trump claims he’s the ‘father’ of IVF</a><br>
+    Donald Trump labelled himself the “father of IVF” in an awkward moment in front of an 
+	all-female audience of voters, as he attempted to win them over in the 2024 election.<br>
+    It comes as many fear rights to IVF may become threatened under a Republican, Trump-led 
+	government.<br>
+	It happened during a Fox News town hall in the key election battleground of Georgia, when 
+	the issue of reproductive rights and IVF (In vitro fertilization) came up, and he scrambled 
+	for an answer.<br>
+	Vice-President Kamala Harris, who was also running for president, called the comment “quite 
+	bizarre”.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-pennsylvania-rally-supporter-killed-joke">
+    Trump makes joke about supporter being killed at Pennsylvania rally</a><br>
+	Donald Trump made a joke at a private fundraiser referencing the widow of Corey Comperatore, 
+	the supporter who was killed during the assassination attempt on Trump in Butler, Pennsylvania 
+	in July, according to a report.<br>
+	The Guardian reported it obtained a 12 minute recording from a dinner held in Aspen, Colorado 
+	on August 10 in which he was heard swearing, claiming a group of "murderers" came to America 
+	after being released from prison in another country and making a joke at the expense of 
+	Comperatore's family.<br>
+    Trump reportedly said: "So they're going to get millions of dollars but the woman, the 
+	wife, this beautiful woman, I handed her the cheque - we handed her the cheque - and 
+	she said, 'this is so nice, and I appreciate it, but I'd much rather have my husband'.<br>
+	"Now, I know some of the women in this room wouldn't say the same.<br>
+	"I know at least four couples. There are four couples, Governor [Abbott], that I know 
+	and you're not one of them. At least four couples here would have been thrilled, actually."</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-the-purge-crime">
+    Donald Trump says a day like The Purge would ‘curb crime’</a><br>
+    During the election campaign, Trump said giving police "one really violent day" to 
+	tackle crime such as theft from stores would help to stop people stealing in what's 
+	been described as "one of the most dangerous speeches of the 21st Century".<br>
+	Trump spoke at a rally in Erie, Pennsylvania on September 29, claiming crime rates are 
+	skyrocketing (something the far right consistently falsely claims to cause fear) and it's 
+	primarily the fault of migrants.<br>
+	He went on to say this could be dealt with in a way similar to the dystopian action horror 
+	film series The Purge where all crime, even murder, is legal for a 12-hour period. Not a 
+	wise choice, if you ask us.</li>
+  <li><a href="https://www.indy100.com/politics/trump/trump-change-name-ai-artificial-intelligence">
+    Trump wants to rename AI - and his suggestion makes no sense</a><br>
+    Donald Trump doesn't like artificial intelligence... well, the name at least, as he bizarrely 
+	requested for AI to be called something else.<br>
+	(Because renaming the "Gulf of Mexico” to “Gulf of America” for federal agencies wasn't enough.)<br>
+	The US president was in attendance at an artificial intelligence summit on 24 July when he 
+	decided to make this linguistic query during a speech.<br>
+	"Around the globe everyone is talking about artificial intelligence. I find that too artificial, 
+	I can’t stand it. I don’t even like the name,” Trump said, tossing his hands up in the air.<br>
+    "It’s not artificial. It’s genius. It’s pure genius," he said of the developing technology.<br>
+	We're not sure that one will catch on.</li>
+  <li>Donald Trump expects another 'thank you' for doing the right thing<br>
+    Following a bust-up over Ukraine, it seems Trump expects another ‘thank you’ for helping 
+	a warzone – this time concerning the ongoing devastation in Gaza.<br>
+    Speaking in Scotland on Sunday, with European Commission president Ursula von der Leyen 
+    sitting next to him, the US president told reporters: “We gave $60 million, two weeks ago 
+    - and nobody even acknowledged it – for food.<br>
+    “It’s terrible. You know, you really at least want to have somebody to say ‘thank you’ … 
+    Nobody acknowledged it, nobody talks about it, and it makes you feel a little bad when 
+    you do that.<br>
+    “Nobody gave but us, and nobody said, ‘gee, thank you very much’, and it would be nice to 
+	have at least a thank you.”<br>
+    How very charitable.
 </li>
 <li><a href="https://www.indy100.com/politics/trump/trump-claims-to-be-only-president-to-donate-his-salary-and-everyone-is-saying-the-same-thing">Trump claims he's the only president ever to have donated 
 his salary</a>
