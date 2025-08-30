@@ -1,7 +1,4 @@
-# trump-stupidest-statements
-Stupidest statements by Trump 2016-2025. Such a fucking idiot.
-
-<h3>LET'S START WITH 25 STUPIDEST THINGS HE'S SAID, THEN WE'LL MOVE ON TO STUPID THINGS HE'S DONE.</h3>
+<h2>LET'S START WITH 25 STUPIDEST THINGS HE'S SAID, THEN WE'LL MOVE ON TO STUPID THINGS HE'S DONE</h2>
 <cite>America's beloved Commander in Queef</cite>
 
 <p>Whether you love him or hate him, Donald Trump is undoubtedly unafraid to speak his mind - 
@@ -13,187 +10,145 @@ leaves the president's mouth.</p>
 
 <p>So, naturally, we've rounded up the 25 stupidest things Donald Trump has ever said... subjectively, 
 of course.</p>
+
 <ol type="1">
-  <li>The Biden administration spent $8 million <a href="https://www.indy100.com/politics/trump/donald-trump-transgender-mice-speech-trending-memes">
-making mice transgender</a>
-In Trump’s first joint address since taking office in January, he praised his own stance on 
-DEI (diversity, equity and inclusion) initiatives, tax cuts and trade tariffs. But, viewers 
-were quick to point out the moment that saw the president claim that the Biden administration 
-had spent $8 million dollars to make “mice transgender”.
-
-The comment drew laughs from those in the audience, as well as online, as people believed 
-Trump appeared to be confusing it with “transgenic mice”.
-
-Making mice transgenic is a revolutionary process by which scientists add human cells to mice 
-to enable them to more accurately study the effect of disease on human tissues.</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-spain-bric-nation-2670974952">
-Spain is reportedly a ‘BRICS’ country</a>
-In his first major blunder since becoming president for the second time, Trump claimed that 
-Spain is a ‘BRICS’ country during a press conference, where he was asked about defence spending 
-in the country.
-
-He claimed: “They’re a BRICS nation, Spain. Do you know what a BRICS nation is? You’ll 
-figure it out.”
-
-BRICS refers to a bloc of 10 developing economies, including Brazil, Russia, India, China 
-and South Africa, of which no EU member nation is a part.
-
-Expand article logo  Continue reading
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-washington-dc-plane-crash-dei">
-Blaming Washington plane crash on DEI</a>
-Following the tragic plane crash between a helicopter and an American Airlines flight in 
-Washington DC in January 2025, Trump took the opportunity to blame diversity and inclusion.
-
-"I changed the Obama standards from very mediocre at best to extraordinary, you remember 
-that only the highest aptitude they have to be the highest intellect and psychologically 
-superior people were allowed to qualify for air traffic controllers”, he said.
-
-"Then when I left office and Biden took over, he changed them back to lower than ever 
-before. I put safety first.
-
-"The initiative is part of the FAA's (Federal Aviation Administration) 'diversity and 
-inclusion hiring plan', which says diversity is 'integral to achieving the FAA's mission 
-of ensuring safe and efficient travel'. I don't think so. I don't think so. I think it's 
-just the opposite."
-
-The comments were met with backlash.
-</li>
-<li>He won’t deport Prince Harry because <a href="https://www.indy100.com/politics/trump/trump-prince-harry-meghan-markle">“he’s got 
-enough problems with Meghan”</a>
-When Trump vowed to introduce mass deportations should he become president, he was quizzed 
-on the fate of British royal Prince Harry. However, it looks like Harry’s all good for now, 
-as Trump says he’d let him stay because he has “enough problems” with his wife, Meghan.
-
-“I’ll leave him alone. He’s got enough problems with his wife – she’s terrible”, he quipped.
-
-Trump refers to himself as <a href="https://www.indy100.com/politics/trump/donald-trump-the-king-truth-social-backlash">
-“the King”</a> - immediately faces backlash
-It’s no secret that Trump thinks a lot of himself, but when he referred to himself as the 
-“king”, people weren’t so willing to go along with it.
-
-“CONGESTION PRICING IS DEAD. Manhattan, and all of New York, is SAVED. LONG LIVE THE 
-KING!”, he wrote on Truth Social, referencing the scrapping of new tolls in the city’s 
-mass transit system.
-
-New York governor Kathy Hochul, simply responded: “We are a nation of laws, not ruled 
-by a king. We’ll see you in court.”
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-denmark-greenland">
-Trump says Denmark “doesn’t have right” to Greenland</a>, despite it belonging to them
-The US is involved in an ongoing dispute over Greenland as Trump wants the land to 
-be America’s, even claiming that Denmark doesn’t have the “right” to the country - 
-except he missed one major fact.
-
-Greenland is a self-governing, autonomous country within the Kingdom of Denmark and has 
-been part of Denmark for 600 years despite being 1,815 miles away (for context, the 
-distance between Greenland and the US is 3,134 miles).
-
-Greenland’s outgoing Prime Minister, Mute Egede, fired back at Trump’s comments in a 
-Facebook post where he wrote: “The U.S. president has once again aired the thought of 
-annexing us."
-
-“Enough is enough,” he added and shared his plans to organise a meeting of the chairmen 
-of all Greenland’s political parties “as soon as possible” to discuss Trump’s latest 
-remarks. Yikes.
-</li>
-<li><a href="https://www.indy100.com/news/donald-trump-lie-are-egg-prices-down">Claims egg 
-prices have dropped 30 per cent in a week</a> - they went up 28 per cent since he took 
-office Donald Trump bending the truth? There’s just no way. Except, he did just claim 
-US egg prices went down 30 per cent in one week alone, when they’ve actually gone up 
-quite significantly.
-
-"I don't know if you saw. Little things such as the cost of eggs – little to you, but 
-big to the people out there. Down almost 30 per cent, in the last, eh, few days”, he 
-said during a press conference on 12 March.
-
-Even Serena Williams' former coach Rennae Stubbs chimed in on the action, writing: 
-"This dude lies as much as he draws breath."
-</li>
-<li>Jabs at Zelensky that he’s <a href="https://www.indy100.com/news/elon-musk-donald-trump-zelensky-suit">
-‘all dressed up’</a> while wearing military-style uniform. Everyone remembers that infamous 
-White House meeting between Donald Trump and President Zelensky when they sought to find a 
-peace solution between Ukraine and Russia - but it would seem things were never going to 
-end well right off the bat.
-
-Ahead of a meeting in the Oval Office with JD Vance and Zelensky, Trump greeted the 
-Ukrainian president with a comment, saying: "Oh look, you’re all dressed up."
-
-Zelensky was seen dressed in a black, long-sleeved polo shirt featuring the Ukrainian 
-trident, which Vance would later go on to criticise, as he’d chosen not to wear a suit. 
-The Ukrainian has not worn a suit since Russia’s invasion began, and instead opted for 
-a uniform likened to his soldiers.</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-canada-mexico-trade-deal">
-Donald Trump asks who signed deal with Mexico and Canada</a> (he did)
-Trade tariffs continue to be a hot topic for US president Donald Trump, but when he tried 
-to play the blame game it ultimately backfired, after social media users pointed out an 
-important fact relating to the situation.
-
-During a White House press conference alongside French president Emmanuel Macron on 
-Monday (February 24), Trump was asked about trade between the US and neighbouring 
-countries Mexico and Canada.
-
-"I mean who can blame if they made these great deals with the United States, took 
-advantage of the United States on manufacturing, on just about everything - every 
-aspect that you could imagine they took advantage of," he said.
-
-"I look at some of these agreements and I say who would ever sign a thing like this. 
-The tariffs will go forward, yes. We’ll make up a lot of territory. Our country will 
-be liquid and rich again."
-
-It was Trump who signed “those things”.</li>
-<li><a href="https://www.indy100.com/news/can-trump-run-for-a-third-term-president-explained">
-Trump drops hint he’ll run for third term</a> - despite it being illegal
-
-When he made it back into office for a second time, Trump was already setting his sights on 
-a third term in the White House - except, that’s not allowed.
-
-On February 20, Trump delivered a speech at a Black History Month event at the White House 
-where he boasted about receiving "more votes from Black Americans than any Republican 
-president ever."
-
-"I won’t be happy the next time," he continued, adding: "Should I run again? You tell me."
-
-However, despite Trump's hints, the 22nd Amendment states that it isn't possible.
-
-"No person shall be elected to the office of the President more than twice, and no person 
-who has held the office of President, or acted as President, for more than two years of a 
-term to which some other person was elected President shall be elected to the office of 
-the President more than once," it reads according to the National Constitution Center.
-
-However, he's since backtracked (as of May 2025) and says he's "not looking" at running again.
-</li>
-<li>Vows to <a href="https://www.indy100.com/politics/trump/donald-trump-plastic-straws-2671150178">
-bring back plastic straws because paper ones ‘explode in minutes’</a>
-While we’re often torn on whether we love the planet or being able to drink a Diet Coke 
-in peace more, Trump has made his feelings about the plastic straw ban clear - and vowed 
-to reverse it.
-
-"These things don't work, I've had them many times, and on occasion, they break, they 
-explode. If something's hot, they don't last very long, like a matter of minutes, 
-sometimes a matter of seconds. It's a ridiculous situation," he said, speaking about 
-paper straws, before immediately signing an executive order to bring the trusty plastic 
-ones back.
-
-Trump doesn't seem too concerned about plastic straws polluting the planet and thinks 
-“it’s OK” to keep using them.
-
-The president added: “I don’t think that plastic is going to affect the shark very much 
-as they’re ... munching their way through the ocean".
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-windmills-whales">
-Donald Trump isn’t a fan of windmills</a>
-Trump hates a lot of those things, and who knew one of those things would be windmills? 
-The 78-year-old described the wind farms as "garbage" and said that when in office, his 
-administration plans to implement policies to stop building them.
-
-“They are dangerous,” Trump said on the matter. “You see what’s happening up in the 
-Massachusetts area with the whales … The windmills are driving the whales crazy, obviously.”
-
-This is a topic Trump has been vocal about during his presidential election campaign 
-as he pledged the number of wind farms would be slashed if reelected.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-american-citizenship-bizarre">
+  <li>The Biden administration spent $8 million 
+    <a href="https://www.indy100.com/politics/trump/donald-trump-transgender-mice-speech-trending-memes">
+	making mice transgender</a>.<br>
+    In Trump’s first joint address since taking office in January, he praised his own stance on 
+	DEI (diversity, equity and inclusion) initiatives, tax cuts and trade tariffs. But, viewers 
+	were quick to point out the moment that saw the president claim that the Biden administration 
+	had spent $8 million dollars to make “mice transgender”.<br>
+    The comment drew laughs from those in the audience, as well as online, as people believed 
+	Trump appeared to be confusing it with “transgenic mice”.<br>
+    Making mice transgenic is a revolutionary process by which scientists add human cells to mice 
+	to enable them to more accurately study the effect of disease on human tissues.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-spain-bric-nation-2670974952">
+    Spain is reportedly a ‘BRICS’ country</a>In his first major blunder since becoming president for 
+	the second time, Trump claimed that Spain is a ‘BRICS’ country during a press conference, where 
+	he was asked about defence spending in the country.<br>
+    He claimed: “They’re a BRICS nation, Spain. Do you know what a BRICS nation is? You’ll 
+	figure it out.”<br>
+    BRICS refers to a bloc of 10 developing economies, including Brazil, Russia, India, China 
+	and South Africa, of which no EU member nation is a part.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-washington-dc-plane-crash-dei">
+    Blaming Washington plane crash on DEI</a>Following the tragic plane crash between a helicopter 
+	and an American Airlines flight in Washington DC in January 2025, Trump took the opportunity to 
+	blame diversity and inclusion.<br>
+    "I changed the Obama standards from very mediocre at best to extraordinary, you remember 
+	that only the highest aptitude they have to be the highest intellect and psychologically 
+	superior people were allowed to qualify for air traffic controllers”, he said.<br>
+    "Then when I left office and Biden took over, he changed them back to lower than ever 
+	before. I put safety first.<br>
+    "The initiative is part of the FAA's (Federal Aviation Administration) 'diversity and 
+	inclusion hiring plan', which says diversity is 'integral to achieving the FAA's mission 
+	of ensuring safe and efficient travel'. I don't think so. I don't think so. I think it's 
+	just the opposite."</li>
+  <li>He won’t deport Prince Harry because 
+    <a href="https://www.indy100.com/politics/trump/trump-prince-harry-meghan-markle">
+	“he’s got enough problems with Meghan”</a><br>
+    When Trump vowed to introduce mass deportations should he become president, he was quizzed 
+	on the fate of British royal Prince Harry. However, it looks like Harry’s all good for now, 
+	as Trump says he’d let him stay because he has “enough problems” with his wife, Meghan.<br>
+    “I’ll leave him alone. He’s got enough problems with his wife – she’s terrible”, he quipped.</li>
+  <li>Trump refers to himself as 
+	<a href="https://www.indy100.com/politics/trump/donald-trump-the-king-truth-social-backlash">
+	“the King”</a> - immediately faces backlash.<br>
+	It’s no secret that Trump thinks a lot of himself, but when he referred to himself as the 
+	“king”, people weren’t so willing to go along with it.<br>
+    “CONGESTION PRICING IS DEAD. Manhattan, and all of New York, is SAVED. LONG LIVE THE 
+	KING!”, he wrote on Truth Social, referencing the scrapping of new tolls in the city’s 
+	mass transit system.<br>
+    New York governor Kathy Hochul, simply responded: “We are a nation of laws, not ruled 
+	by a king. We’ll see you in court.”</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-denmark-greenland">
+    Trump says Denmark “doesn’t have right” to Greenland</a>, despite it belonging to them
+	The US is involved in an ongoing dispute over Greenland as Trump wants the land to 
+	be America’s, even claiming that Denmark doesn’t have the “right” to the country - 
+	except he missed one major fact.<br>
+    Greenland is a self-governing, autonomous country within the Kingdom of Denmark and has 
+	been part of Denmark for 600 years despite being 1,815 miles away (for context, the 
+	distance between Greenland and the US is 3,134 miles).<br>
+    Greenland’s outgoing Prime Minister, Mute Egede, fired back at Trump’s comments in a 
+    Facebook post where he wrote: “The U.S. president has once again aired the thought of 
+    annexing us."
+    “Enough is enough,” he added and shared his plans to organise a meeting of the chairmen 
+	of all Greenland’s political parties “as soon as possible” to discuss Trump’s latest 
+	remarks. Yikes.</li>
+  <li><a href="https://www.indy100.com/news/donald-trump-lie-are-egg-prices-down">
+    Claims egg prices have dropped 30 per cent in a week</a> - they went up 28 per cent since 
+	he took office Donald Trump bending the truth? There’s just no way. Except, he did just 
+	claim US egg prices went down 30 per cent in one week alone, when they’ve actually gone 
+	up quite significantly.<br>
+    "I don't know if you saw. Little things such as the cost of eggs – little to you, but 
+	big to the people out there. Down almost 30 per cent, in the last, eh, few days”, he 
+	said during a press conference on 12 March.<br>
+    Even Serena Williams' former coach Rennae Stubbs chimed in on the action, writing: 
+	"This dude lies as much as he draws breath."</li>
+  <li>Jabs at Zelensky that he’s <a href="https://www.indy100.com/news/elon-musk-donald-trump-zelensky-suit">
+    ‘all dressed up’</a> while wearing military-style uniform. Everyone remembers that infamous 
+	White House meeting between Donald Trump and President Zelensky when they sought to find a 
+	peace solution between Ukraine and Russia - but it would seem things were never going to 
+	end well right off the bat.<br>
+    Ahead of a meeting in the Oval Office with JD Vance and Zelensky, Trump greeted the 
+	Ukrainian president with a comment, saying: "Oh look, you’re all dressed up."<br>
+    Zelensky was seen dressed in a black, long-sleeved polo shirt featuring the Ukrainian 
+    trident, which Vance would later go on to criticise, as he’d chosen not to wear a suit. 
+    The Ukrainian has not worn a suit since Russia’s invasion began, and instead opted for 
+    a uniform likened to his soldiers.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-canada-mexico-trade-deal">
+    Donald Trump asks who signed deal with Mexico and Canada</a> (he did)<br>
+    Trade tariffs continue to be a hot topic for US president Donald Trump, but when he tried 
+	to play the blame game it ultimately backfired, after social media users pointed out an 
+	important fact relating to the situation.<br>
+    During a White House press conference alongside French president Emmanuel Macron on 
+	Monday (February 24), Trump was asked about trade between the US and neighbouring 
+    countries Mexico and Canada.<br>
+    "I mean who can blame if they made these great deals with the United States, took 
+	advantage of the United States on manufacturing, on just about everything - every 
+	aspect that you could imagine they took advantage of," he said.<br>
+    "I look at some of these agreements and I say who would ever sign a thing like this. 
+	The tariffs will go forward, yes. We’ll make up a lot of territory. Our country will 
+	be liquid and rich again."<br>
+    It was Trump who signed “those things”.</li>
+  <li><a href="https://www.indy100.com/news/can-trump-run-for-a-third-term-president-explained">
+    Trump drops hint he’ll run for third term</a> - despite it being illegal<br>
+    When he made it back into office for a second time, Trump was already setting his sights on 
+	a third term in the White House - except, that’s not allowed.<br>
+    On February 20, Trump delivered a speech at a Black History Month event at the White House 
+	where he boasted about receiving "more votes from Black Americans than any Republican 
+	president ever."<br>
+    "I won’t be happy the next time," he continued, adding: "Should I run again? You tell me."<br>
+    However, despite Trump's hints, the 22nd Amendment states that it isn't possible.<br>
+    "No person shall be elected to the office of the President more than twice, and no person 
+    who has held the office of President, or acted as President, for more than two years of a 
+	term to which some other person was elected President shall be elected to the office of 
+	the President more than once," it reads according to the National Constitution Center.<br>
+    However, he's since backtracked (as of May 2025) and says he's "not looking" at running again.</li>
+  <li>Vows to <a href="https://www.indy100.com/politics/trump/donald-trump-plastic-straws-2671150178">
+    bring back plastic straws because paper ones ‘explode in minutes’</a>
+    While we’re often torn on whether we love the planet or being able to drink a Diet Coke 
+	in peace more, Trump has made his feelings about the plastic straw ban clear - and vowed 
+	to reverse it.<br>
+    "These things don't work, I've had them many times, and on occasion, they break, they 
+    explode. If something's hot, they don't last very long, like a matter of minutes, 
+	sometimes a matter of seconds. It's a ridiculous situation," he said, speaking about 
+	paper straws, before immediately signing an executive order to bring the trusty plastic 
+	ones back.<br>
+    Trump doesn't seem too concerned about plastic straws polluting the planet and thinks 
+	“it’s OK” to keep using them.<br>
+    The president added: “I don’t think that plastic is going to affect the shark very much 
+	as they’re ... munching their way through the ocean".</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-windmills-whales">
+    Donald Trump isn’t a fan of windmills</a>
+    Trump hates a lot of those things, and who knew one of those things would be windmills? 
+	The 78-year-old described the wind farms as "garbage" and said that when in office, his 
+	administration plans to implement policies to stop building them.<br>
+    “They are dangerous,” Trump said on the matter. “You see what’s happening up in the 
+    Massachusetts area with the whales … The windmills are driving the whales crazy, obviously.”<br>
+    This is a topic Trump has been vocal about during his presidential election campaign 
+	as he pledged the number of wind farms would be slashed if reelected.</li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-american-citizenship-bizarre">
 Trump shares bizarre take on how citizenship works</a>
 Donald Trump is infamous for saying completely outrageous remarks, making dubious 
 decisions and just generally things that make you go: "Eh?"
@@ -393,5 +348,4 @@ Americans would be paid to receive their medication.
 <a href="https://www.indy100.com/politics/trump/trump-paving-over-rose-garden-reaction">
 Paved over the Rose Garden.</a> You fucking Kunt DJT! TACO fuck. Coward!!!</li>
 </ol>
-
 
