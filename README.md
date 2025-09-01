@@ -267,47 +267,37 @@ of course.</p>
     “Nobody gave but us, and nobody said, ‘gee, thank you very much’, and it would be nice to 
 	have at least a thank you.”<br>
     How very charitable.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/trump-claims-to-be-only-president-to-donate-his-salary-and-everyone-is-saying-the-same-thing">Trump claims he's the only president ever to have donated 
-his salary</a>
-Donald Trump has made a wild claim about his presidential salary, but everyone is 
-saying the same thing.
-
-The US president has made many wild claims throughout his presidency, from outlandish 
-claims about drug prices to the suggestion he’s “shook more hands than any human is 
-capable of”.
-
-In his most recent brag on Truth Social, Trump suggested he is “the only President” to 
-have donated his salary – $400,000 annually.
-
-While his claim of being the only president to do so is false (several of his predecessors 
-including John F. Kennedy and Herbert Hoover donated their presidential salaries), many 
-have also highlighted how he has spent eye-watering sums of public money on playing golf, 
-and also made billions while in office.
-
-According to the tracking website Did Trump Golf Today?, 24.5 per cent of Trump’s presidency 
-has been spent golfing.
-</li>
-<li><a href="https://www.indy100.com/politics/trump/donald-trump-bizarre-rant-grass">This 
-bizarre rant about grass</a>
-</li>
-<li><a href="https://www.indy100.com/politics/trump/trump-maths-drug-prices-claim">Not 
-understanding how prices work</a>
-
-Donald Trump's maths is coming under scrutiny once again following his latest claim about 
-cutting drug prices - and the verdict is it still doesn't add up...
-
-The president was asked what advice he has for Republicans on Capitol Hill heading into 
-the midterms, and that's when Trump brought up the bizarre claim about the "tremendous 
-drop in drug prices".
-
-“You know, we’ve cut drug prices by 1,200, 1,300, 1,400, 1,500 per cent,” he said.
-
-This clip began making the rounds on social media, where Trump's stats were swiftly 
-criticised as they schooled the commander-in-chief that his calculations would mean 
-Americans would be paid to receive their medication.
-
-<a href="https://www.indy100.com/politics/trump/trump-paving-over-rose-garden-reaction">
-Paved over the Rose Garden.</a> You fucking Kunt DJT! TACO fuck. Coward!!!</li>
+  </li>
+  <li><a href="https://www.indy100.com/politics/trump/trump-claims-to-be-only-president-to-donate-his-salary-and-everyone-is-saying-the-same-thing">Trump claims he's the only president ever to have donated his salary</a>
+  Donald Trump has made a wild claim about his presidential salary, but everyone is saying the same thing.
+  The US president has made many wild claims throughout his presidency, from outlandish 
+  claims about drug prices to the suggestion he’s “shook more hands than any human is 
+  capable of”.<br>
+  In his most recent brag on Truth Social, Trump suggested he is “the only President” to 
+  have donated his salary – $400,000 annually.<br>
+  While his claim of being the only president to do so is false (several of his predecessors 
+  including John F. Kennedy and Herbert Hoover donated their presidential salaries), many 
+  have also highlighted how he has spent eye-watering sums of public money on playing golf, 
+  and also made billions while in office.<br>
+  According to the tracking website Did Trump Golf Today?, 24.5 per cent of Trump’s presidency 
+  has been spent golfing.
+  </li>
+  <li><a href="https://www.indy100.com/politics/trump/donald-trump-bizarre-rant-grass">
+    This bizarre rant about grass</a>
+  </li>
+  <li><a href="https://www.indy100.com/politics/trump/trump-maths-drug-prices-claim">Not 
+    understanding how prices work</a>
+    Donald Trump's maths is coming under scrutiny once again following his latest claim about 
+	cutting drug prices - and the verdict is it still doesn't add up...
+	The president was asked what advice he has for Republicans on Capitol Hill heading into 
+	the midterms, and that's when Trump brought up the bizarre claim about the "tremendous 
+	drop in drug prices".
+	“You know, we’ve cut drug prices by 1,200, 1,300, 1,400, 1,500 per cent,” he said.
+	This clip began making the rounds on social media, where Trump's stats were swiftly 
+	criticised as they schooled the commander-in-chief that his calculations would mean 
+	Americans would be paid to receive their medication.
+	<a href="https://www.indy100.com/politics/trump/trump-paving-over-rose-garden-reaction">
+    Paved over the Rose Garden.</a> You fucking Kunt DJT! TACO fuck. Coward!!!
+  </li>
 </ol>
 
